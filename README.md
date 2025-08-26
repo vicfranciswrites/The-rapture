@@ -131,6 +131,8 @@ The rapture was prophesied by Jesus in Luke 21:25-28, Matthew 24:29-31 and Mark 
 
 ## Who is Jesus?
 
+![Image](https://github.com/user-attachments/assets/141bc856-41fc-4f78-9234-781d4aee7aaa)
+
 Jesus is the son of God who raptured people on November 21st, 2024. To save people from suffering the chaos that awaits the world from his father—God.
 
 He died on a wooden cross.

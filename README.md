@@ -17,6 +17,8 @@ November 21st, 2024.
 
 The Rapture is a spiritual event prophesied by Jesus in the Bible where God's people were taken away from this earth and catapulted to heaven via an ascension via God's angels.
 
+One moment, millions will vanish in the twinkling of an eye (1 Corinthians 15:52 KJV).
+
 ## When did the rapture take place?
 
 The Rapture took place verily on November 21st, 2024. It was a remarkable day to be a follower of Christ. The once mocked rapture became real.
